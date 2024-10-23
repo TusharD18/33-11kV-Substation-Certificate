@@ -1,7 +1,7 @@
 # 33/11 kV Substation Training/Work Experience
 
 **33/11kV Substation, HPSEBL, Nadaun (HP)**  
-*Electrical Trainee (Jan 2021 - Feb 2020)*
+*Electrical Trainee (Jan 2021 - Feb 2021)*
 
 ### Role: Electrical Trainee - Substation Operations
 
